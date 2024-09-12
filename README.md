@@ -1,0 +1,1 @@
+# Estou registrando oque estou aprendendo no curso origamid para uso próprio de revisão de conceitos.
